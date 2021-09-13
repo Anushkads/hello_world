@@ -1,2 +1,2 @@
 # hello_world
-a completely new coder 
+Hiii! I'am completely new coder Anushka...Basically exploring thw new stuffs T_T....
